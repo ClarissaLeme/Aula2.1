@@ -1,3 +1,0 @@
-Perfect
-Beatiful Girl
-Survivor
